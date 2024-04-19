@@ -5,7 +5,7 @@
 3. You’ll get a coin 🪙 for every problem solved
 4. Special problems gives you 3 coins 🪙🪙🪙      
 5. Guaranteed swag on your first coin
-6. Swag on the 21’st coin mark
+6. Swag on the 15’st coin mark
 7. Special swag to every finisher
 8. Special swag to the first place (time + coins)
 
